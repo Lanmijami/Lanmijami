@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently finishing my studies <br>I'm interested in new technologies<br>I'm ready to learn from smarter people<br>I will always strive for greatness
+I'm currently finishing my studies <br>I'm interested in new technologies<br>I'm ready to learn from smarter people<br>It's a pleasure to be a part of the dev community!
 
 
 ## 🌐 Socials:
